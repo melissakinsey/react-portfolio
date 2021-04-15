@@ -1,4 +1,0 @@
-# resume
-# team
-# team
-# team
